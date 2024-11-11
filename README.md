@@ -10,7 +10,7 @@ I'm MetroTopia, a passionate Roblox builder and crypto enthusiast. Welcome to my
 
 ## 🚀 Interests
 
-- **Roblox Building:** Crafting unique and engaging experiences.
+- **Team Fortress 2:** Just playing casual using scout!
 - **Cryptocurrency:** Exploring the latest trends and technologies.
 - **Gaming:** Always up for a good game session!
 
