@@ -3,7 +3,7 @@
 I'm MetroTopia, a Linux fanboy and and a cybersecurity enthusiast!
 
 ## 🌟 About Me
--Proud Linux user! (Manjaro VS Nobara)
+- Proud Linux user! (Manjaro VS Nobara)
 - 🐾 Proud cat parent to Lola, my tabby cat!
 
 ## 🚀 Interests
