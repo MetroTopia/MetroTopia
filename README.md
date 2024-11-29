@@ -1,24 +1,23 @@
 # Hi there! 👋
 
-I'm MetroTopia, a Linux fanboy and and a cybersecurity enthusiast!
+I'm MetroTopia, a Linux fanboy!
 
 ## 🌟 About Me
-- Proud Linux user! (Manjaro VS Nobara)
-- 🐾 Proud cat parent to Lola, my tabby cat!
+- Proud Linux user! (Nobara btw)
 
 ## 🚀 Interests
 
-- **Team Fortress 2:** Just playing casual using scout!
-- **Gaming:** Always up for a good game session!
+CS2! I'm not very good though...
 
 ## 🌐 My Socials:
 
 - [Roblox] (https://www.roblox.com/users/1682816993/profile)
  
-- Im not a social person!
+- [Steam] (https://steamcommunity.com/id/topiared/)
 
 ## 🐱 Fun Fact
 
-Did you know? My cat loves gravy and turkey cat food? 🐾
+Did you know if you had 1 Billion Dollars it would rotate around the world 4 times!
 
+## Last message
 Thanks for stopping by! 🌟
