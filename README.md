@@ -8,6 +8,7 @@ I'm MetroTopia, a Linux fanboy!
 ## 🚀 Interests
 
 CS2! I'm not very good though...
+Guild Wars 2!
 
 ## 🌐 My Socials:
 
